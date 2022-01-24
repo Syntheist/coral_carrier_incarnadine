@@ -7,3 +7,5 @@ Reduce, Reuse, Recycle Mechanics
 Storytelling
 World Building
 Interspecies consciousness
+
+nothing here is canon.
